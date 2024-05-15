@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SochiGera247
+- 👀 I’m interested in all
+- 🌱 I’m currently learning java, Python
+- Hey gues Im here
